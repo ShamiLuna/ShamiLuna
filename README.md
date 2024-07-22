@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Any app ideas
 - 📫 How to reach me ... flutterappdevelopershamina@gmail.com
 - 😄 Pronouns: ... call me s(h)a mee na 
-- ⚡ Fun fact: ... World craziest goose app production 
+- ⚡ Fun fact: ... More space for sweets,serotonin bug
 
 
 
